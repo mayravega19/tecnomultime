@@ -1,0 +1,2 @@
+
+Mi historia se trata de un pequeño relato de kirell que sale de sus clases de la facultad muy tarde como a las 10 y por su casa es muy peligroso,ya han robado a sus vecinos varias veces sobre todo en moto,por ello ella tiene temor que le pase lo mismo,no sabe si tomar un remis y poder llegar bien a su casa o agarrar el colectivo que toma siempre para ahorar dinero de lo que no cuenta mucho,por eso decidi hacer esos  dos caminos con diferentes opciones y con un mismo final en los caminos,en el cual para kirell seria llegar con bien a su casa. 
